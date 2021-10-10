@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @patrickloerch
-- 👀 I may be interested
 - 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate
 
